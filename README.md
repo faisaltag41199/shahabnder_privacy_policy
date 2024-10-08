@@ -43,15 +43,15 @@
 
 لممارسة هذه الحقوق، اتصل بنا على:
 
-**الهاتف**: +201111507591، +201200445581، +201222536053  
-**الايميل**: [mkrm5555@gmail.com](mailto:mkrm5555@gmail.com)
+**الهاتف**: +201145911102  
+**الايميل**: [islamshahbander@gmail.com](mailto:islamshahbander@gmail.com)
 
 ## 6. اتصل بنا
 
-إذا كانت لديك أي أسئلة بشأن سياسة الخصوصية هذه، يرجى الاتصال بنا على **البطل**:
+إذا كانت لديك أي أسئلة بشأن سياسة الخصوصية هذه، يرجى الاتصال بنا على **شهبندر**:
 
-**الهاتف**: +201111507591، +201200445581، +201222536053  
-**الايميل**: [mkrm5555@gmail.com](mailto:mkrm5555@gmail.com)
+**الهاتف**: +201145911102  
+**الايميل**: [islamshahbander@gmail.com](mailto:islamshahbander@gmail.com)
 
 
 
@@ -101,13 +101,13 @@ You have the right to:
 
 To exercise these rights, contact us at:
 
-**Phone**: +201111507591, +201200445581, +201222536053  
-**Email**: [mkrm5555@gmail.com](mailto:mkrm5555@gmail.com)
+**Phone**: +201145911102  
+**Email**: [islamshahbander@gmail.com](mailto:islamshahbander@gmail.com)
 
 ## 6. Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us at **Albatal**:
+If you have any questions or concerns about this Privacy Policy, please contact us at **Shahabnder**:
 
-**Phone**: +201111507591, +201200445581, +201222536053  
-**Email**: [mkrm5555@gmail.com](mailto:mkrm5555@gmail.com)
+**Phone**: +201145911102  
+**Email**:[islamshahbander@gmail.com](mailto:islamshahbander@gmail.com)
 
